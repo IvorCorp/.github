@@ -1,2 +1,2 @@
 # IvorCorp
-En IvorCorp, creamos sitios web y recursos muy utiles, Actualmente somos un equipo de 7 miembros.
+Ivor Corporation, diseño web, sistemas webs y hosting. La tecnologia mas moderna y eficiente existente esta a tus manos con IvorCorp!
